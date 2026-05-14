@@ -1,4 +1,4 @@
-#  
+#  aura ascension vip Scripts is the best aura ascension Script, featuring no cooldown and custom skins. Safe and powerful for all your needs.
 
 
 
